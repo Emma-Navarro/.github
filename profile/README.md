@@ -34,4 +34,4 @@ In January 2025, Emma reached the quarterfinals of the Australian Open. She defe
 
 Emma Navarro's tennis career is on a remarkable trajectory. From her early successes in junior tournaments to her achievements on the professional stage, she has shown exceptional talent and determination. As she continues to compete at the highest levels, the tennis world eagerly anticipates her future accomplishments.
 
-[For more information about Emma Navarro](https://algocrafted.com).
+[For more information about Emma Navarro](https://algocrafted.com/emma-navarro-the-super-tennis-star).
